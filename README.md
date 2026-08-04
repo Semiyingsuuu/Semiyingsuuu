@@ -25,4 +25,3 @@
   
   
   
-  ![Alt text](https://github.com/Semiyingsuuu/Semiyingsuuu/blob/df263ea784b4c1159e0273169d3bb7e87a44357f/_%20(56).jpeg)
