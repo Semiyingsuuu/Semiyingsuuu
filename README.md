@@ -11,3 +11,6 @@
 
 [strawpage](https://semyyingsyouuu.straw.page/)
 
+
+## 1 straw is for mobile only.
+
